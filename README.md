@@ -1,0 +1,1 @@
+# worst-ad-in-adgroup
